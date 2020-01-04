@@ -1,5 +1,5 @@
 # ESO-Glitch
-Undaunted Coffer Glitch
+## Undaunted Coffer Glitch
 
 Undaunted chest system bugged/broken, bought 7 undaunted coffers in the new system, look what shoulder this one had inside.
 
