@@ -9,3 +9,5 @@ Undaunted chest system bugged/broken, bought 7 undaunted coffers in the new syst
 
 Undaunted system broken! Waste of keys and my time, also bought 4 City of Ash Coffers and only got 4 Infernal Guardian shoulders, no Valkyn Skoria >:-(
  
+
+<img src="https://github.com/kubikiribocho/eSO-Glitch/zabuza4.png" width="700" />
